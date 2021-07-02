@@ -1,0 +1,2 @@
+Tem sido uma experiência incrível estudar programação, ainda mais num programa bem estruturado, com professores que detém uma excelente didática.
+Já me sinto vitorioso e alegre só de estar entre os 10 mil selecionados e espero estar entre os 300 finalistas deste treinamento e conquistar uma oportunidade futura de emprego.
